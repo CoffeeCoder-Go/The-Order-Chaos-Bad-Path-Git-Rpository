@@ -12,4 +12,4 @@ The war would happen, unless he delivered a forgiveness card.
 
 Deliver the card is easy but is time-consuming, really? no, in the unique path of the two kingdoms, has a dangerous forest, what in addtion of time-consuming, is a certain death, unless the delivery peoples was so brave.
 
-The Julodum has the three amateur heros with name Louis, Kasva and Pyfgad, what they are so brave, to complete thee mission, they needs face and defeat th dangeers of the forest.
+The Julodum has the three amateur heros with name Louis, Kasva and Pyfgad, what they are so brave, to complete thee mission, they needs face and defeat the dangers of the forest.
